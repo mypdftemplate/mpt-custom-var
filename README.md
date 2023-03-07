@@ -1,0 +1,1 @@
+https://www.mypdftemplate.com/user-guide/woocommerce-invoice-pdf/how-to-add-custom-variable
